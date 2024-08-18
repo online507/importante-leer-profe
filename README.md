@@ -1,1 +1,2 @@
 # importante-leer-profe
+Este mensaje es para pedirle que pueda darme la oportunidad de aprobar la materia,personalmente seguirè estudiando y aprendiendo sobre java,se que estos 4 meses fueron de guia para adquirir conocimientos y ganar experiencia en este lenguaje,ante todo esto me he esforzado para poder subir cada una de las lecciones a esta plataforma y sacrificado tiempo con mi familia,valor economico y cansancio fisico,asi que con esto me despido pidiendo su apoyo y deseandole lo mejor en sus proyectos.
